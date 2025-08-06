@@ -60,9 +60,9 @@
 ---
 
 ## 📫 Как со мной связаться
-- ✉️ Email: your.email@example.com  
-- 💬 Telegram: @your_username  
-- 👔 LinkedIn: [Ваше Имя](https://linkedin.com/in/your-profile)
+- ✉️ Email: nikitkak20l5@mail.ru  
+- 💬 Telegram: @Boo4ik
+
 
 ---
 
